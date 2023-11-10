@@ -1,1 +1,1 @@
-# arquivo001
+# COMPRE DIAMANTES
